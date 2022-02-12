@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Onxuxb
 - 👀 I’m interested in programs
-- 🌱 I’m currently learning Japanese and Engish
+- 🌱 I’m currently learning Japanese and English
 - 💞️ I’m looking to collaborate on programming
 - 📫 How to reach me?Mail:dabangchui2020@outlook.com(Tip: Before sending it to me, it is recommended to use Google Translate to translate it into Chinese. Because I am a Chinese.)
 
